@@ -1,2 +1,5 @@
 # instalacion1
-instalación de componentes
+inssdad
+ssdad
+
+dadsasss
